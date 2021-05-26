@@ -15,3 +15,15 @@ this is where i will make benis coin.
 is this thing working?
 
 are you also a cunt?
+
+hampton, is smiply hampton
+
+panda may be the first woman to create a crypto called bussy coin
+
+dapper c omg
+
+bananoman is a bazingaaire!
+
+lol, it dramatic.
+
+
