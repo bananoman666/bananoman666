@@ -8,6 +8,16 @@
 bananoman666/bananoman666 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+BENISCOIN.
+
+SUPPLY
+
+1trillion.69
+
+fairly distrubuted in the beniscoin faucet discord
+
+i created the NFT, not NFT's, but the no fee transaction, you CUCK
+
 hey fuckos, i'm banksy too.
 
 this is where i will make benis coin.
