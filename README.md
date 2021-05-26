@@ -22,7 +22,7 @@ hey fuckos, i'm banksy too.
 
 this is where i will make benis coin.
 
-is this thing working?
+is this thing working? idk, as JD.
 
 are you also a cunt?
 
