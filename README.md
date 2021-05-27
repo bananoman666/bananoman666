@@ -250,6 +250,173 @@ Benisman — Today at 12:26 AM
 i just programmed it into the source code
 MY BOY OMAR — Today at 12:26 AM
 
+---------------------------------------------------------
+
+NH PRANTO OWN BNEISCONE
+
+MY BOY OMAR — Today at 12:30 AM
+!'^+%
+Benisman — Today at 12:30 AM
+that look like this
+!@#$%^&*()_+
+so
+if i want to unlock beniscoin
+if i am dead
+i would type the anser
+fake anser example
+MY BOY OMAR — Today at 12:30 AM
+what
+Benisman — Today at 12:31 AM
+"fuck gucc$"
+first word fuck
+last five
+New server — Today at 12:31 AM
+Qwerty
+Benisman — Today at 12:31 AM
+has
+!@#$%^&*()_+
+and it must be in quotes
+to unlock
+BENISCOIN
+plus
+the prize
+100kbanano
+firgure it out
+fuck off
+NH Pranto — Today at 12:31 AM
+Wow
+Benisman — Today at 12:31 AM
+i'm done
+fuck
+it's pranto
+haha
+unlock it
+MY BOY OMAR — Today at 12:32 AM
+man i am so bored
+NH Pranto — Today at 12:32 AM
+Yeah
+Hehe
+Benisman — Today at 12:32 AM
+"fuck 6^lwe"
+damn
+no beniscoin
+only i have the key
+MY BOY OMAR — Today at 12:32 AM
+!@#$%^&*()_+
+NH Pranto — Today at 12:32 AM
+Network playing with me
+Benisman — Today at 12:32 AM
+last 5
+NH Pranto — Today at 12:32 AM
+Rip!
+Benisman — Today at 12:32 AM
+Network playing with me
+Network playing with me
+Network playing with me
+Network playing with me
+Network playing with me
+Network playing with me
+Network playing with me
+Network playing with me
+MY BOY OMAR — Today at 12:32 AM
+`1234567890-=
+Benisman — Today at 12:32 AM
+Network playing with me
+Network playing with me
+Network playing with me
+Network playing with me
+Network playing with me
+Network playing with me
+Network playing with me
+NH Pranto — Today at 12:32 AM
+$tops
+Benisman — Today at 12:32 AM
+Network playing with me
+Network playing with me
+Network playing with me
+MY BOY OMAR — Today at 12:32 AM
+:emoji_25:
+Benisman — Today at 12:33 AM
+wat
+NH Pranto — Today at 12:33 AM
+Network playing with me
+Network playing with me
+Network playing with me
+Network playing with me
+Network playing with me
+Network playing with me
+Network playing with me
+Network playing with me
+Network playing with me
+Network playing with me
+Network playing with me
+Network playing with me
+Benisman — Today at 12:33 AM
+"fuck cunt1"
+shit
+NH Pranto — Today at 12:33 AM
+Banano man!
+Benisman — Today at 12:33 AM
+Banano man!
+Banano man!
+Banano man!
+Banano man!
+Banano man!
+Banano man!
+Banano man!
+Banano man!
+Banano man!
+NH Pranto — Today at 12:34 AM
+We need a bot here?
+MY BOY OMAR — Today at 12:34 AM
+olay
+Benisman — Today at 12:34 AM
+yeah
+MY BOY OMAR — Today at 12:34 AM
+$bal
+Benisman — Today at 12:34 AM
+it here
+MY BOY OMAR — Today at 12:34 AM
+@die
+Benisman — Today at 12:34 AM
+when you get password
+lol
+NH Pranto — Today at 12:34 AM
+$bal ban
+Benisman — Today at 12:34 AM
+haha
+brb
+New server — Today at 12:34 AM
+$bal btb
+Benisman — Today at 12:34 AM
+it's now in blockcahian
+NH Pranto — Today at 12:34 AM
+Don’t work
+Benisman — Today at 12:34 AM
+part 3
+MY BOY OMAR — Today at 12:34 AM
+okay
+it's decide
+by mem
+e
+gucci ate the first cod
+BENISCOIN
+for lulz
+the winner get 1 million beniscoin
+i hid the second
+to unlock
+NH Pranto — Today at 12:35 AM
+@Benisman are you owner nano?
+:poop:
+New server — Today at 12:35 AM
+696969
+MY BOY OMAR — Today at 12:35 AM
+yes
+
+----------------------------------------
+
+PART 5
+
 
 
 
