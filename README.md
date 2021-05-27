@@ -115,7 +115,7 @@ BENISCOIN.
 
 SUPPLY
 
-1trillion.69
+6969trillion.69
 
 fairly distrubuted in the beniscoin faucet discord
 
