@@ -115,6 +115,141 @@ Strive to be happy.
 
 Part 2.
 
+MY BOY OMAR — Today at 12:19 AM
+yeah
+Benisman — Today at 12:19 AM
+brb
+MY BOY OMAR — Today at 12:19 AM
+olay
+Benisman — Today at 12:19 AM
+i need to writ it down twice
+and feed 1 to gucci
+he is hungry
+MY BOY OMAR — Today at 12:19 AM
+okay
+olay
+Benisman — Today at 12:19 AM
+hmmm
+the first hint
+to unlock
+bussy coin
+here
+le'ts play a game
+MY BOY OMAR — Today at 12:20 AM
+olay
+Benisman — Today at 12:20 AM
+MY BOY OMAR — Today at 12:20 AM
+sweetheart
+'sweet heart'
+Benisman — Today at 12:20 AM
+"NOT WIN"
+MY BOY OMAR — Today at 12:20 AM
+''too bad''
+Benisman — Today at 12:20 AM
+FIRST WORD
+4 letter
+next hint
+24 hour
+MY BOY OMAR — Today at 12:20 AM
+lol okay
+Benisman — Today at 12:20 AM
+MY BOY OMAR — Today at 12:20 AM
+''omar
+Benisman — Today at 12:20 AM
+no
+hold
+i need to writ it down
+only 1 sympbol
+is a
+MY BOY OMAR — Today at 12:21 AM
+okay
+Benisman — Today at 12:21 AM
+!@#$%^&*()_+
+MY BOY OMAR — Today at 12:21 AM
+swearing
+Benisman — Today at 12:22 AM
+okay
+it's decide
+by mem
+e
+gucci ate the first cod
+i hid the second
+the winner get 1 million beniscoin
+then i tip 1 billion
+for lulz
+to unlock
+BENISCOIN
+"TWO WORDS"
+MY BOY OMAR — Today at 12:23 AM
+enjoy your meal gucci!
+Benisman — Today at 12:23 AM
+CASE MATTERS
+first word
+4 letter
+second word
+5 letter
+MY BOY OMAR — Today at 12:23 AM
+''gucci problem''
+Benisman — Today at 12:23 AM
+that all
+nope
+nope
+if you get
+1 word right
+you win
+"FUCK *"
+fuck
+is the first word
+case matters
+MY BOY OMAR — Today at 12:24 AM
+omg
+pomato — Today at 12:24 AM
+:emoji_19~1:
+Benisman — Today at 12:24 AM
+
+GL
+MY BOY OMAR — Today at 12:25 AM
+'fuck buddy'
+Benisman — Today at 12:25 AM
+it's programed into the wallet
+to open beniscoin
+i had to
+nope
+lol
+i said there is one
+!@#$%^&*()
+case matters
+New server — Today at 12:25 AM
+Benis Coin
+Benisman — Today at 12:25 AM
+think
+no
+lol
+omg
+noobs
+the answer is
+"fuck 12345"
+MY BOY OMAR — Today at 12:26 AM
+''fuck 12345''
+pomato — Today at 12:26 AM
+xD
+MY BOY OMAR — Today at 12:26 AM
+lol i won byt
+Benisman — Today at 12:26 AM
+but idk what 12345 is!
+MY BOY OMAR — Today at 12:26 AM
+bye
+Benisman — Today at 12:26 AM
+it dramatic
+New server — Today at 12:26 AM
+:emoji_37:
+pomato — Today at 12:26 AM
+FUCK BENIS
+?
+Benisman — Today at 12:26 AM
+i just programmed it into the source code
+MY BOY OMAR — Today at 12:26 AM
+
 
 
 
