@@ -417,7 +417,147 @@ yes
 
 PART 5
 
+Grimes Marry MEME?
 
+omar — Today at 12:44 AM
+okay blair calm down
+!ballers - 1 million banano — Today at 12:44 AM
+okay blair calm down
+felony count
+okay blair calm down
+!coppunch
+omar — Today at 12:45 AM
+10
+!ballers - 1 million banano — Today at 12:45 AM
+orly
+@everyone
+i'm sorry
+i just dropped the password to beniscoin to 3 people
+in a the USMAIL
+so
+talin in 3 days
+mayube
+lol
+omar — Today at 12:51 AM
+olay
+good
+!ballers - 1 million banano — Today at 12:52 AM
+it dramatic
+godspeed
+rip dogecoin
+$ticker dogecoin
+Fuck!
+BOT
+ — Today at 12:53 AM
+
+Dogecoin
+Market cap
+$44,071,344,013.00 (#7) ​
+Price
+$0.33 ​
+Price (BTC)
+:BTC: 884 satoshi ​
+Change (1h)
+:chart_with_upwards_trend: +0.03% ​
+Change (24h)
+:chart_with_downwards_trend: -6.43% ​
+Change (7d)
+:chart_with_upwards_trend: +0.31% ​
+
+Data fetched from CoinGecko.com•Today at 12:51 AM
+!ballers - 1 million banano — Today at 12:53 AM
+omar — Today at 12:53 AM
+yeah
+!ballers - 1 million banano — Today at 12:53 AM
+bye.
+omar — Today at 12:53 AM
+bye
+BENISCOIN PRANTO!!!!!! — Today at 1:03 AM
+Bye
+!ballers - 1 million banano — Today at 1:04 AM
+i'm back!
+hold up
+@everyone
+is grimes singler?
+i marry her
+and giver her babby 2
+omar — Today at 1:05 AM
+goood
+!ballers - 1 million banano — Today at 1:05 AM
+when babby 2?
+when babby 2?
+when babby 2?
+novi181 — Today at 1:06 AM
+Congrats bananaoman:clapclap: :Pepe_Happy_Clap:
+!ballers - 1 million banano — Today at 1:06 AM
+@everyone when babby 2?
+when babby 2?
+when babby 2?
+when babby 2?
+when babby 2? @everyone
+when babby 2?
+i need a fucking sequel
+when babby 2?
+omar — Today at 1:06 AM
+tonigh
+t
+!ballers - 1 million banano — Today at 1:06 AM
+when babby 2?
+omg
+i fuck grimes tonight and go away 5 eva
+when babby 2?
+novi181 — Today at 1:07 AM
+9 month later
+:peepoGiggle:
+!ballers - 1 million banano — Today at 1:07 AM
+9 month later
+9 month later
+9 month later
+i gave bitch 1 gameboy
+9 month later
+9 month later
+new fav gif
+9 month later
+u mad BRO?
+9 month later
+VIOLENCE
+OKAY
+YEAH
+COOL
+can i have 1 grimes?
+plox
+i quit
+and go with grime 2 mar
+MY BOY OMAR — Today at 1:11 AM
+yep
+can i have 1 grimes?
+plox
+i quit
+and go with grime 2 mar
+MY BOY OMAR — Today at 1:11 AM
+yep
+omar — Today at 1:12 AM
+yep
+!ballers - 1 million banano — Today at 1:12 AM
+can i have 1 grimes?
+plox
+i quit
+and go with grime 2 mar
+MY BOY OMAR — Today at 1:11 AM
+yep
+brb
+omar — Today at 1:12 AM
+k
+!ballers - 1 million banano — Today at 1:12 AM
+gotta add it to the blockcahin
+can i have 1 grimes?
+plox
+i quit
+and go with grime 2 mar
+MY BOY OMAR — Today at 1:11 AM
+yep
+omar — Today at 1:12 AM
+olay
 
 
 
