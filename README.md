@@ -1,3 +1,285 @@
+PROLAUGHE
+NH Pranto — Yesterday at 3:53 AM
+Fuck benis coin
+[3:53 AM]
+Now
+1 blocked message — Show message
+
+NH Pranto — Yesterday at 5:30 AM
+Nothing serious
+
+Atalaya — Yesterday at 9:43 AM
+Hello
+
+Michi — Yesterday at 12:10 PM
+Hi all
+
+Dr. Berry — Yesterday at 4:58 PM
+
+Bantano19 — Yesterday at 5:01 PM
+[5:01 PM]
+
+Dr. Berry — Yesterday at 5:07 PM
+
+Arepa ❤ — Yesterday at 5:14 PM
+  
+[5:14 PM]
+Ho es bantano
+
+👑&--Lord Banus--&👑 — Yesterday at 5:15 PM
+bantano
+[5:16 PM]
+
+
+Princesita — Yesterday at 5:25 PM
+@The Bananoman
+
+
+The Bananoman — Yesterday at 6:40 PM
+
+
+The Bananoman — Yesterday at 7:23 PM
+https://discord.gg/pqnaffGz
+YOU SENT AN INVITE, BUT...
+Invalid Invite
+Try sending a new invite!
+
+Edgar Amesti — Yesterday at 7:57 PM
+Bananaomal banner lol
+
+Orlando Calderon — Yesterday at 7:57 PM
+yeah
+
+The Bananoman — Yesterday at 8:06 PM
+https://discord.gg/khQmZre4
+YOU SENT AN INVITE, BUT...
+Invalid Invite
+Try sending a new invite!
+[8:06 PM]
+rapist
+[8:06 PM]
+LUV
+[8:06 PM]
+is a rapist
+[8:06 PM]
+wait
+
+NH Pranto — Yesterday at 10:22 PM
+https://discord.gg/khQmZre4
+YOU RECEIVED AN INVITE, BUT...
+Invalid Invite
+Ask NH Pranto for a new invite!
+
+Mention
+
+Pandita — Yesterday at 11:33 PM
+Ok
+May 27, 2021
+
+BichoBenis — Today at 7:29 AM
+Ok
+
+NH Pranto — Today at 9:28 AM
+WEN NEW COIN?
+NH Pranto
+ pinned 
+a message
+ to this channel. See all 
+pinned messages
+.
+ — Today at 9:28 AM
+
+The Bananoman — Today at 2:01 PM
+@Pandita
+[2:01 PM]
+[2:01 PM]
+u delay laichnc dare
+[2:01 PM]
+
+
+Milad — Today at 2:02 PM
+Lol
+
+Pandita — Today at 3:22 PM
+I'm wakanda
+
+The Bananoman — Today at 3:22 PM
+Loopy?
+[3:21 PM]
+yes or no.
+
+Pandita — Today at 3:22 PM
+
+The Bananoman — Today at 3:22 PM
+[3:22 PM]
+Loopy?
+[3:21 PM]
+yes or no.
+
+Arepa ❤ — Today at 3:22 PM
+Wen  benis
+
+The Bananoman — Today at 3:22 PM
+[3:22 PM]
+Loopy?
+[3:21 PM]
+yes or no.
+
+Pandita — Today at 3:22 PM
+Tell me
+[3:22 PM]
+Tell me
+
+The Bananoman — Today at 3:22 PM
+there is no stopping this brick
+
+Pandita — Today at 3:22 PM
+Tell me
+
+The Bananoman — Today at 3:22 PM
+i have no idea
+[3:23 PM]
+cunt
+[3:23 PM]
+[3:23 PM]
+[3:23 PM]
+Loopy?
+[3:21 PM]
+yes or no.
+[3:23 PM]
+[3:23 PM]
+fine
+
+Arepa ❤ — Today at 3:23 PM
+Yes
+
+The Bananoman — Today at 3:23 PM
+goodnight
+[3:23 PM]
+fine
+[3:23 PM]
+goodnight
+
+Pandita — Today at 3:23 PM
+Woop
+
+The Bananoman — Today at 3:23 PM
+Loopy?
+[3:21 PM]
+yes or no.
+[3:23 PM]
+[3:23 PM]
+
+
+Milad — Today at 3:23 PM
+Whats up banano man
+
+The Bananoman — Today at 3:23 PM
+[3:23 PM]
+[3:23 PM]
+Loopy?
+[3:21 PM]
+yes or no.
+
+Pandita — Today at 3:24 PM
+
+The Bananoman — Today at 3:24 PM
+find goodnight
+[3:24 PM]
+seriosuly
+
+@The Bananoman
+find goodnight
+
+Milad — Today at 3:24 PM
+I miss u BANANOMAN
+
+The Bananoman — Today at 3:24 PM
+same
+[3:24 PM]
+cunt
+
+Pandita — Today at 3:24 PM
+Goodnight bby
+
+The Bananoman — Today at 3:24 PM
+Loopy?
+[3:21 PM]
+yes or no.
+
+Pandita — Today at 3:24 PM
+Rest
+
+The Bananoman — Today at 3:24 PM
+no
+[3:24 PM]
+am i gay?
+[3:24 PM]
+[3:24 PM]
+Loopy?
+[3:21 PM]
+yes or no.
+
+Pandita — Today at 3:24 PM
+I'm gae
+[3:24 PM]
+No?
+
+The Bananoman — Today at 3:24 PM
+cool
+[3:24 PM]
+yeah
+[3:24 PM]
+i am gae
+[3:24 PM]
+[3:24 PM]
+Loopy?
+[3:21 PM]
+yes or no.
+[3:24 PM]
+[3:24 PM]
+[3:25 PM]
+
+
+Pandita — Today at 3:25 PM
+Lol
+
+The Bananoman — Today at 3:25 PM
+[3:25 PM]
+Loopy?
+[3:21 PM]
+yes or no.
+[3:25 PM]
+Loopy?
+[3:21 PM]
+yes or no.
+[3:25 PM]
+Loopy?
+[3:21 PM]
+yes or no.
+[3:25 PM]
+Loopy?
+[3:21 PM]
+yes or no.
+[3:25 PM]
+Loopy?
+[3:21 PM]
+yes or no.
+[3:25 PM]
+Loopy?
+[3:21 PM]
+yes or no.
+
+----------------------------------------
+The end is near.
+
+fuck off
+
+fucko
+
+i gae
+
+........
 I PUT IT IN THE GRIMES BLOCK.
 
 IT DRAMATICD.
