@@ -1,3 +1,14 @@
+let's start from the top.
+
+lb,
+
+will you mary me
+
+y or n,
+
+continue?
+
+
 PROLAUGHE
 NH Pranto — Yesterday at 3:53 AM
 Fuck benis coin
