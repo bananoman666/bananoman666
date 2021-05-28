@@ -1,3 +1,189 @@
+Cunt is testing server — Today at 4:07 PM
+i told you.
+[4:08 PM]
+protect me
+[4:08 PM]
+you couldn't
+[4:08 PM]
+my bad
+[4:10 PM]
+i'm sorry.
+[4:10 PM]
+you are
+[4:10 PM]
+[4:10 PM]
+enjoy being a milti million aire.
+[4:10 PM]
+you saved my life
+[4:10 PM]
+thank you.
+[4:10 PM]
+and i am not sorry.
+
+BANANOMAN CRASHES BITCOIN — Today at 4:10 PM
+i love you.
+
+Cunt is testing server — Today at 4:11 PM
+[4:12 PM]
+[4:12 PM]
+[4:12 PM]
+[4:15 PM]
+[4:15 PM]
+$ticker bitcoin
+
+RIP BITCOIN
+BOT
+ — Today at 4:15 PM
+
+Bitcoin
+Market cap
+$660,354,485,621.00 (#1) ​
+Price
+$35,336.00 ​
+Change (1h)
+ -0.45% ​
+Change (24h)
+ -8.44% ​
+Change (7d)
+ -12.62% ​
+
+Data fetched from CoinGecko.com•Today at 4:13 PM
+
+1
+
+Cunt is testing server — Today at 4:15 PM
+[4:16 PM]
+$ticker banano
+
+RIP BITCOIN
+BOT
+ — Today at 4:16 PM
+
+Banano
+Market cap
+$27,540,540.00 (#591) ​
+Price
+$0.02 ​
+Price (BTC)
+ 64 satoshi ​
+Change (1h)
+ -0.20% ​
+Change (24h)
+ -13.73% ​
+Change (7d)
+ -32.39% ​
+
+Data fetched from CoinGecko.com•Today at 4:13 PM
+
+1
+
+Cunt is testing server — Today at 4:16 PM
+[4:17 PM]
+lol brb, gotta pump it up to 6.66 satoshi
+[4:17 PM]
+[4:17 PM]
+[4:19 PM]
+i made dropbox
+[4:19 PM]
+and quit when it wasnt secure.
+[4:19 PM]
+[4:19 PM]
+$ticker dogecoin
+
+RIP BITCOIN
+BOT
+ — Today at 4:19 PM
+
+Dogecoin
+Market cap
+$39,872,626,763.00 (#7) ​
+Price
+$0.30 ​
+Price (BTC)
+ 872 satoshi ​
+Change (1h)
+ -0.36% ​
+Change (24h)
+ -6.81% ​
+Change (7d)
+ -22.55% ​
+
+Data fetched from CoinGecko.com•Today at 4:18 PM
+
+1
+
+Cunt is testing server — Today at 4:19 PM
+[4:20 PM]
+i test everything in beta
+[4:20 PM]
+and quit
+[4:20 PM]
+thus owning the rights
+[4:20 PM]
+i'm a loser
+[4:20 PM]
+i own
+[4:20 PM]
+last pass
+[4:20 PM]
+adblock plus
+[4:20 PM]
+yadda yadda yadda
+[4:21 PM]
+[4:22 PM]
+[4:22 PM]
+$ticker bitcoin
+
+RIP BITCOIN
+BOT
+ — Today at 4:22 PM
+
+Bitcoin
+Market cap
+$660,568,235,633.00 (#1) ​
+Price
+$35,378.00 ​
+Change (1h)
+ -0.18% ​
+Change (24h)
+ -7.96% ​
+Change (7d)
+ -12.51% ​
+
+Data fetched from CoinGecko.com•Today at 4:21 PM
+
+1
+
+Cunt is testing server — Today at 4:22 PM
+bitcoin caused corana
+[4:22 PM]
+virus
+[4:22 PM]
+YOU CUNTS
+[4:22 PM]
+i did it on accident
+[4:23 PM]
+https://techcrunch.com/2021/03/21/the-debate-about-cryptocurrency-and-energy-consumption/
+TechCrunch
+David Riggs
+The debate about cryptocurrency and energy consumption – TechCrunch
+Energy consumption has become the latest flashpoint for cryptocurrency. Critics decry it as an energy hog while proponents hail it for being less intensive than the current global economy.  One such critic, DigiEconomist founder Alex de Vries, said he’s “never seen anything that is as inefficient a…
+
+[4:23 PM]
+and left the project.
+[4:23 PM]
+i like banano
+[4:23 PM]
+it's pure
+[4:23 PM]
+benis is more pure
+[4:23 PM]
+i made it
+[4:23 PM]
+idiots.
+[4:23 PM]
+@everyone
+
 https://discord.gg/ATEeywat
 is private
 don't join
