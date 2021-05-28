@@ -1,5 +1,131 @@
 BENISCOIN:
+L.B☘ — Today at 10:25 AM
+You are the same as me, I am on many servers
 
+YASS BITCH — Today at 10:26 AM
+Happy day
+
+L.B☘ — Today at 10:26 AM
+@YASS BITCH hi
+
+YASS BITCH — Today at 10:26 AM
+@L.B☘ How are you ?
+
+1
+
+1
+
+Benis Mange — Today at 10:27 AM
+@everyone let em in
+[10:27 AM]
+i know how gets PERMABAN
+[10:27 AM]
+FOREVER
+[10:27 AM]
+HERE.
+[10:27 AM]
+BENISCOIN LAUNCH DAY
+[10:27 AM]
+wink wink
+[10:27 AM]
+FIRST BAN
+[10:27 AM]
+@Supreme Chancellor Palpatine CUNT!
+[10:27 AM]
+[10:28 AM]
+YOU MAD BRO?
+[10:28 AM]
+TWO BAD CUNT
+[10:28 AM]
+
+Daud Khan — Today at 10:30 AM
+@Benis Mange
+Dear please Start benis giveaway 
+Please
+
+omar fucko — Today at 10:30 AM
+olay
+[10:31 AM]
+brrrr
+
+Benis Mange — Today at 10:31 AM
+new rule
+[10:31 AM]
+i'm buying the knitting factory
+[10:31 AM]
+and partisan records
+[10:31 AM]
+and shutting it down.
+[10:31 AM]
+in a year
+
+omar fucko — Today at 10:31 AM
+yay
+
+Benis Mange — Today at 10:32 AM
+
+omar fucko — Today at 10:32 AM
+skrt skrt okay
+
+Benis Mange — Today at 10:32 AM
+i need my name back
+
+omar fucko — Today at 10:32 AM
+okay blair
+
+Benis Mange — Today at 10:32 AM
+lets see
+[10:32 AM]
+okay blair
+[10:32 AM]
+how much i am worth
+
+omar fucko — Today at 10:32 AM
+1 b
+
+Benis Mange — Today at 10:32 AM
+TIM CAN FUCKING DIE FOR ALL I CARE
+[10:32 AM]
+
+omar fucko — Today at 10:32 AM
+blair fucking
+[10:32 AM]
+what
+
+Benis Mange — Today at 10:32 AM
+SUE ME
+
+omar fucko — Today at 10:32 AM
+okay
+[10:32 AM]
+for
+
+Benis Mange — Today at 10:32 AM
+[10:32 AM]
+idk
+[10:32 AM]
+u
+
+omar fucko — Today at 10:32 AM
+
+Benis Mange — Today at 10:33 AM
+
+omar fucko — Today at 10:33 AM
+okay what is this
+
+Benis Mange — Today at 10:33 AM
+heaven
+[10:33 AM]
+
+omar fucko — Today at 10:33 AM
+
+NEW
+[10:33 AM]
+buy me a hoe
+[10:33 AM]
+do you do kamikaze everyady
+[10:34 AM]
+because i do
 AKA YOU DUMB CUNT!
 
 leroyyyahjenkins — Today at 10:19 AM
