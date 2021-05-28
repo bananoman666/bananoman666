@@ -1,3 +1,7 @@
+https://discord.gg/JYzWmch4
+
+lunch day
+
 https://discord.gg/bananocave
 
 www.feelsgoodman.com
