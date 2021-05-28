@@ -15,6 +15,106 @@ https://bitinfocharts.com/bitcoin/address/1FeexV6bAHb8ybZjqQMjJrcCrHGW9sb6uF
 
 1 bitcoin in coming from bananoman.
 
+bort — Today at 1:17 PM
+Oh
+
+Wonder Woman Pandita🐼 — Today at 1:19 PM
+Ok
+[1:20 PM]
+
+OG BANANOMAN — Today at 1:20 PM
+okay
+[1:20 PM]
+this means
+[1:20 PM]
+legally
+[1:20 PM]
+by law
+[1:20 PM]
+any fucking footage
+[1:20 PM]
+on my dropbox
+[1:20 PM]
+is mine
+[1:20 PM]
+for BENISTUBES
+[1:20 PM]
+
+Wonder Woman Pandita🐼 — Today at 1:20 PM
+
+OG BANANOMAN — Today at 1:20 PM
+yeah
+[1:20 PM]
+that's right
+
+Beniscoin is the new Bananotoken — Today at 1:21 PM
+[1:21 PM]
+[1:21 PM]
+[1:21 PM]
+take over
+[1:21 PM]
+you're in charge now
+[1:21 PM]
+you own all
+[1:22 PM]
+i get my benis cafe
+[1:22 PM]
+
+ipostgifsnsaynothinofvalue — Today at 1:22 PM
+That loaded yours chamo
+
+Beniscoin is the new Bananotoken — Today at 1:22 PM
+haha
+[1:22 PM]
+i just like seing how much money my family has
+[1:22 PM]
+$ticker banano
+
+Fuck!
+BOT
+ — Today at 1:22 PM
+
+Banano
+Market cap
+$29,222,095.00 (#580) ​
+Price
+$0.02 ​
+Price (BTC)
+ 66 satoshi ​
+Change (1h)
+ +0.74% ​
+Change (24h)
+ -8.00% ​
+Change (7d)
+ -28.40% ​
+
+Data fetched from CoinGecko.com•Today at 1:16 PM
+
+1
+
+Beniscoin is the new Bananotoken — Today at 1:22 PM
+[1:22 PM]
+
+no shit. — Today at 1:22 PM
+Oh yes
+
+Beniscoin is the new Bananotoken — Today at 1:22 PM
+can i fuck grimes yet?
+[1:23 PM]
+give her babby 2
+[1:23 PM]
+it's a mod issue
+[1:23 PM]
+[1:23 PM]
+i made my grimes block
+[1:23 PM]
+[1:23 PM]
+https://github.com/bananoman666/bananoman666/blob/main/README.md
+GitHub
+bananoman666/bananoman666
+Config files for my GitHub profile. Contribute to bananoman666/bananoman666 development by creating an account on GitHub.
+
+
 
 
 
