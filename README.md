@@ -1,3 +1,8 @@
+@everyone i am @assbut you got roblock'd
+
+i like it raw (without a condom on my beniscoin)
+
+
 Cunt is testing server — Today at 4:07 PM
 i told you.
 [4:08 PM]
