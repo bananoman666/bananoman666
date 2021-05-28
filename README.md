@@ -1,3 +1,32 @@
+BENISCOIN:
+
+AKA YOU DUMB CUNT!
+
+leroyyyahjenkins — Today at 10:19 AM
+how do i mine this beniscoin you speak of
+
+omar fucko — Today at 10:19 AM
+good you
+
+Benis Mange — Today at 10:19 AM
+stupid cunt
+[10:19 AM]
+are you retarded
+
+omar fucko — Today at 10:19 AM
+yes
+
+Benis Mange — Today at 10:19 AM
+haha
+[10:19 AM]
+whatever
+NEW
+
+Bananoman — Today at 10:19 AM
+@Benis Mange 
+May be you have 10 million  ban 
+I'm right
+
 let's start from the top.
 
 lb,
