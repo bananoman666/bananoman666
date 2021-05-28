@@ -1,3 +1,18 @@
+https://discord.gg/bananocave
+
+www.feelsgoodman.com
+
+www.theredditor.com
+
+www.blairdrager.com
+
+www.guccimaneforever.com
+
+www.beniscoin.cc a work in progress, it's a mod is you, cuck.
+
+
+
+
 https://discord.com/channels/844839956992229436/844839956992229439/847925703323156550
 - 👋 Hi, I’m @bananoman666
 - 👀 I’m interested in ...
