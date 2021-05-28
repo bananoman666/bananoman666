@@ -1,3 +1,10 @@
+https://discord.gg/ATEeywat
+is private
+don't join
+please
+thank you
+is private
+
 https://discord.gg/JYzWmch4
 
 lunch day
