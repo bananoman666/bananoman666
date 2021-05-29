@@ -1,3 +1,153 @@
+TIM PUTNAM DEAD FAGGOT — Today at 8:10 PM
+you shouldn't talk about yourself like that
+
+Dope — Today at 8:10 PM
+
+bananoman — Today at 8:10 PM
+[8:10 PM]
+@everyone i found the mod problem
+[8:10 PM]
+it's tim putnam
+[8:11 PM]
+he once descripbed himself
+[8:11 PM]
+as
+[8:11 PM]
+define:
+[8:11 PM]
+https://www.google.com/search?q=define+megalomaniac&rlz=1C1GCEA_enUS953US954&oq=define+mego&aqs=chrome.1.69i57j0i10l9.3021j1j15&sourceid=chrome&ie=UTF-8
+[8:11 PM]
+
+Dope — Today at 8:11 PM
+
+bananoman — Today at 8:11 PM
+meg·a·lo·ma·ni·ac
+/ˌmeɡələˈmānēˌak/
+Learn to pronounce
+noun
+noun: megalomaniac; plural noun: megalomaniacs
+
+    a person who is obsessed with their own power.
+        a person who suffers delusions of their own power or importance.
+
+adjective
+adjective: megalomaniac
+
+    exhibiting megalomania.
+
+pretty cool guy — Today at 8:11 PM
+Goood night family
+
+bananoman — Today at 8:11 PM
+[8:11 PM]
+lol
+[8:11 PM]
+alberto friend
+[8:11 PM]
+if tim
+[8:11 PM]
+RIP
+[8:12 PM]
+i'll sleep when i'm dead
+
+pretty cool guy — Today at 8:12 PM
+@bananoman how are brothe
+
+soy ricky martin — Today at 8:12 PM
+
+@bananoman
+meg·a·lo·ma·ni·ac /ˌmeɡələˈmānēˌak/ Learn to pronounce noun noun: megalomaniac; plural noun: megalomaniacs      a person who is obsessed with their own power.         a person who suffers delusions of their own power or importance.  adjective adjective: megalomaniac      exhibiting megalomania.
+
+TIM PUTNAM DEAD FAGGOT — Today at 8:12 PM
+
+bananoman — Today at 8:12 PM
+
+@bananoman
+@everyone i found the mod problem
+
+frozen — Today at 8:12 PM
+what is the problem
+
+bananoman — Today at 8:12 PM
+$ticker banano
+
+RIP BITCOIN
+BOT
+ — Today at 8:12 PM
+
+Banano
+Market cap
+$28,602,383.00 (#584) ​
+Price
+$0.02 ​
+Price (BTC)
+ 64 satoshi ​
+Change (1h)
+ -0.15% ​
+Change (24h)
+ -8.10% ​
+Change (7d)
+ -15.16% ​
+
+Data fetched from CoinGecko.com•Today at 8:03 PM
+
+1
+
+bananoman — Today at 8:12 PM
+meg·a·lo·ma·ni·ac
+/ˌmeɡələˈmānēˌak/
+Learn to pronounce
+noun
+noun: megalomaniac; plural noun: megalomaniacs
+
+    a person who is obsessed with their own power.
+        a person who suffers delusions of their own power or importance.
+
+adjective
+adjective: megalomaniac
+
+    exhibiting megalomania.
+
+Dope — Today at 8:12 PM
+$airdrop 69 benis
+
+1
+
+RIP BITCOIN
+BOT
+ — Today at 8:12 PM
+ Command error
+@Dope, I don't know what amount you mean by benis.
+
+bananoman — Today at 8:13 PM
+am i a selfish cunt who hate faggots and rips off the music industry because i think i'm god?
+[8:13 PM]
+no
+
+@bananoman
+meg·a·lo·ma·ni·ac /ˌmeɡələˈmānēˌak/ Learn to pronounce noun noun: megalomaniac; plural noun: megalomaniacs      a person who is obsessed with their own power.         a person who suffers delusions of their own power or importance.  adjective adjective: megalomaniac      exhibiting megalomania.
+
+TIM PUTNAM DEAD FAGGOT — Today at 8:13 PM
+you ever recover your hacked banana?
+
+bananoman — Today at 8:13 PM
+$airdrop 69 benis
+
+RIP BITCOIN
+BOT
+ — Today at 8:13 PM
+ Command error
+@bananoman, I don't know what amount you mean by benis.
+
+bananoman — Today at 8:13 PM
+noobs
+[8:13 PM]
+bananoman — Today at 8:13 PM
+am i a selfish cunt who hate faggots and rips off the music industry because i think i'm god?
+[8:13 PM]
+no
+
+
 BENISCOIN. If I am dead in 1 year, kill TIM PUTNAM.
 
 bananoman — Today at 8:04 PM
