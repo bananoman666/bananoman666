@@ -1,3 +1,202 @@
+APOLOGIZE TO THE QWEEN
+CUNT FUCK FUCKO
+[6:11 PM]
+RIP PARTISAN RECORDS
+[6:11 PM]
+I TURN IT INTO BIPOLR BLAIR RECORD NOW
+[6:11 PM]
+APOLOGIZE TO THE QWEEN
+CUNT FUCK FUCKO
+[6:11 PM]
+APOLOGIZE TO THE QWEEN
+CUNT FUCK FUCKO
+RIP PARTISAN RECORDS
+I TURN IT INTO BIPOLR BLAIR RECORD NOW
+APOLOGIZE TO THE QWEEN
+CUNT FUCK FUCKO
+[6:11 PM]
+[6:11 PM]
+APOLOGIZE TO THE QWEEN
+CUNT FUCK FUCKO
+RIP PARTISAN RECORDS
+I TURN IT INTO BIPOLR BLAIR RECORD NOW
+APOLOGIZE TO THE QWEEN
+CUNT FUCK FUCKO
+[6:11 PM]
+
+bananoman — Today at 6:11 PM
+APOLOGIZE TO THE QWEEN
+CUNT FUCK FUCKO
+RIP PARTISAN RECORDS
+I TURN IT INTO BIPOLR BLAIR RECORD NOW
+APOLOGIZE TO THE QWEEN
+CUNT FUCK FUCKO
+[6:11 PM]
+[6:11 PM]
+[6:11 PM]
+APOLOGIZE TO THE QWEEN
+CUNT FUCK FUCKO
+RIP PARTISAN RECORDS
+I TURN IT INTO BIPOLR BLAIR RECORD NOW
+APOLOGIZE TO THE QWEEN
+CUNT FUCK FUCKO
+[6:11 PM]
+[6:12 PM]
+[6:12 PM]
+APOLOGIZE TO THE QWEEN
+CUNT FUCK FUCKO
+RIP PARTISAN RECORDS
+I TURN IT INTO BIPOLR BLAIR RECORD NOW
+APOLOGIZE TO THE QWEEN
+CUNT FUCK FUCKO
+
+bananoman — Today at 6:12 PM
+[6:12 PM]
+APOLOGIZE TO THE QWEEN
+CUNT FUCK FUCKO
+RIP PARTISAN RECORDS
+I TURN IT INTO BIPOLR BLAIR RECORD NOW
+APOLOGIZE TO THE QWEEN
+CUNT FUCK FUCKO
+[6:12 PM]
+[6:12 PM]
+APOLOGIZE TO THE QWEEN
+CUNT FUCK FUCKO
+RIP PARTISAN RECORDS
+I TURN IT INTO BIPOLR BLAIR RECORD NOW
+APOLOGIZE TO THE QWEEN
+CUNT FUCK FUCKO
+[6:12 PM]
+[6:12 PM]
+APOLOGIZE TO THE QWEEN
+CUNT FUCK FUCKO
+RIP PARTISAN RECORDS
+I TURN IT INTO BIPOLR BLAIR RECORD NOW
+APOLOGIZE TO THE QWEEN
+CUNT FUCK FUCKO
+
+bananoman — Today at 6:12 PM
+APOLOGIZE TO THE QWEEN
+CUNT FUCK FUCKO
+RIP PARTISAN RECORDS
+I TURN IT INTO BIPOLR BLAIR RECORD NOW
+APOLOGIZE TO THE QWEEN
+CUNT FUCK FUCKO
+[6:12 PM]
+lol
+[6:12 PM]
+fine
+[6:12 PM]
+no apologies
+
+bananoman — Today at 6:12 PM
+https://en.wikipedia.org/wiki/Partisan_Records
+Partisan Records
+Partisan Records is an independent record label with offices in London and Los Angeles, as well as in New York City, where the company was co-founded in 2007 by Tim Putnam and Ian Wheeler. The label, initially run out of Putnam’s South Brooklyn apartment, relocated in 2009 to their flagship office in Williamsburg where they still reside. Holy So...
+
+[6:12 PM]
+i own this now
+[6:12 PM]
+$ticker nano
+
+RIP BITCOIN
+BOT
+ — Today at 6:12 PM
+
+Nano
+Market cap
+$952,972,478.00 (#88) ​
+Price
+$7.16 ​
+Price (BTC)
+ 0.1948 mBTC ​
+Change (1h)
+ +2.50% ​
+Change (24h)
+ -9.39% ​
+Change (7d)
+ -3.69% ​
+
+Data fetched from CoinGecko.com•Today at 6:11 PM
+
+1
+
+bananoman — Today at 6:12 PM
+https://en.wikipedia.org/wiki/Partisan_Records
+Partisan Records
+Partisan Records is an independent record label with offices in London and Los Angeles, as well as in New York City, where the company was co-founded in 2007 by Tim Putnam and Ian Wheeler. The label, initially run out of Putnam’s South Brooklyn apartment, relocated in 2009 to their flagship office in Williamsburg where they still reside. Holy So...
+
+[6:13 PM]
+fine
+no apologies
+bananoman — Today at 6:12 PM
+https://en.wikipedia.org/wiki/Partisan_Records
+Partisan Records
+Partisan Records is an independent record label with offices in London and Los Angeles, as well as in New York City, where the company was co-founded in 2007 by Tim Putnam and Ian Wheeler. The label, initially run out of Putnam’s South Brooklyn apartment, relocated in 2009 to their flagship office in Williamsburg where they still reside. Holy So...
+
+i own this now
+$ticker nano
+Partisan Records
+Partisan Records is an independent record label with offices in London and Los Angeles, as well as in New York City, where the company was co-founded in 2007 by Tim Putnam and Ian Wheeler. The label, initially run out of Putnam’s South Brooklyn apartment, relocated in 2009 to their flagship office in Williamsburg where they still reside. Holy So...
+
+[6:13 PM]
+[6:13 PM]
+fine
+no apologies
+bananoman — Today at 6:12 PM
+https://en.wikipedia.org/wiki/Partisan_Records
+Partisan Records
+Partisan Records is an independent record label with offices in London and Los Angeles, as well as in New York City, where the company was co-founded in 2007 by Tim Putnam and Ian Wheeler. The label, initially run out of Putnam’s South Brooklyn apartment, relocated in 2009 to their flagship office in Williamsburg where they still reside. Holy So...
+
+i own this now
+$ticker nano
+Partisan Records
+Partisan Records is an independent record label with offices in London and Los Angeles, as well as in New York City, where the company was co-founded in 2007 by Tim Putnam and Ian Wheeler. The label, initially run out of Putnam’s South Brooklyn apartment, relocated in 2009 to their flagship office in Williamsburg where they still reside. Holy So...
+
+[6:13 PM]
+$ticker banano
+[6:13 PM]
+fine
+no apologies
+bananoman — Today at 6:12 PM
+https://en.wikipedia.org/wiki/Partisan_Records
+Partisan Records
+Partisan Records is an independent record label with offices in London and Los Angeles, as well as in New York City, where the company was co-founded in 2007 by Tim Putnam and Ian Wheeler. The label, initially run out of Putnam’s South Brooklyn apartment, relocated in 2009 to their flagship office in Williamsburg where they still reside. Holy So...
+
+i own this now
+$ticker nano
+Partisan Records
+Partisan Records is an independent record label with offices in London and Los Angeles, as well as in New York City, where the company was co-founded in 2007 by Tim Putnam and Ian Wheeler. The label, initially run out of Putnam’s South Brooklyn apartment, relocated in 2009 to their flagship office in Williamsburg where they still reside. Holy So...
+
+
+RIP BITCOIN
+BOT
+ — Today at 6:13 PM
+
+Banano
+Market cap
+$28,515,926.00 (#587) ​
+Price
+$0.02 ​
+Price (BTC)
+ 64 satoshi ​
+Change (1h)
+ +1.90% ​
+Change (24h)
+ -8.57% ​
+Change (7d)
+ -15.42% ​
+
+Data fetched from CoinGecko.com•Today at 6:07 PM
+
+1
+
+bananoman — Today at 6:13 PM
+brb
+[6:13 PM]
+blockchain
+
+
 TIM PUTNAM BOW DOWN TO THE QUEWEEN OR DEATH
 
 CUCK
