@@ -1,3 +1,222 @@
+BENISCOIN: THE GRIMES GENIS BLOKE
+
+i'm gay. assholes.
+[6:14 PM]
+[6:14 PM]
+[6:15 PM]
+[6:15 PM]
+[6:15 PM]
+[6:15 PM]
+https://github.com/bananoman666/bananoman666/blob/main/README.md
+GitHub
+bananoman666/bananoman666
+Config files for my GitHub profile. Contribute to bananoman666/bananoman666 development by creating an account on GitHub.
+
+[6:15 PM]
+[6:16 PM]
+[6:16 PM]
+[6:16 PM]
+i created bitcoin with a group of 10 idiots including omar
+[6:16 PM]
+https://github.com/bananoman666/bananoman666/blob/main/README.md
+GitHub
+bananoman666/bananoman666
+Config files for my GitHub profile. Contribute to bananoman666/bananoman666 development by creating an account on GitHub.
+
+[6:16 PM]
+[6:16 PM]
+@Wonder Woman Pandita🐼 did you get a "i'm sorry yet?"
+[6:16 PM]
+that fucko
+[6:16 PM]
+lol
+[6:16 PM]
+i told you
+[6:17 PM]
+i was going to destroy his life
+[6:17 PM]
+[6:17 PM]
+$ticker banano
+
+RIP BITCOIN
+BOT
+ — Today at 6:17 PM
+
+Banano
+Market cap
+$28,515,926.00 (#587) ​
+Price
+$0.02 ​
+Price (BTC)
+ 64 satoshi ​
+Change (1h)
+ +2.28% ​
+Change (24h)
+ -8.09% ​
+Change (7d)
+ -14.97% ​
+
+Data fetched from CoinGecko.com•Today at 6:13 PM
+
+1
+
+bananoman — Today at 6:17 PM
+it dramatic
+
+Wonder Woman Pandita🐼 — Today at 6:17 PM
+@bananoman not yet
+
+bananoman — Today at 6:18 PM
+okay
+[6:18 PM]
+what should i do
+[6:18 PM]
+i'll log off
+[6:18 PM]
+now
+[6:18 PM]
+if needed
+[6:19 PM]
+you are worth
+[6:19 PM]
+i am not
+[6:19 PM]
+you are
+[6:19 PM]
+only YOU
+[6:19 PM]
+$ticker
+
+RIP BITCOIN
+BOT
+ — Today at 6:19 PM
+
+Banano
+Market cap
+$28,515,926.00 (#587) ​
+Price
+$0.02 ​
+Price (BTC)
+ 64 satoshi ​
+Change (1h)
+ +2.28% ​
+Change (24h)
+ -8.09% ​
+Change (7d)
+ -14.97% ​
+
+Data fetched from CoinGecko.com•Today at 6:13 PM
+
+1
+
+bananoman — Today at 6:19 PM
+[6:19 PM]
+i started this project at 100k
+[6:19 PM]
+what
+[6:19 PM]
+
+bananoman — Today at 6:30 PM
+TIME TO POST A DEAD RETARD THAT IS NOT YET TIM PUTNAm
+[6:31 PM]
+https://pitchfork.com/reviews/albums/21714-blood-visions/
+Pitchfork
+Jay Reatard: Blood Visions
+Jay Reatard was the kingpin of Memphis garage rock, and his best and most powerful full-length work—the record that made him a standalone rock star—was his first solo album.
+
+[6:31 PM]
+sorry
+[6:31 PM]
+retard*
+[6:31 PM]
+[6:32 PM]
+https://github.com/bananoman666/bananoman666/blob/main/README.md
+GitHub
+bananoman666/bananoman666
+Config files for my GitHub profile. Contribute to bananoman666/bananoman666 development by creating an account on GitHub.
+
+[6:32 PM]
+@Wonder Woman Pandita🐼
+[6:32 PM]
+https://tenor.com/view/torture-eat-sausage-game-of-trones-ramsay-bolton-gif-17739411
+[6:32 PM]
+[6:32 PM]
+i shook the mans hand
+[6:33 PM]
+if he does not apologize
+[6:33 PM]
+we
+[6:33 PM]
+made
+[6:33 PM]
+1
+[6:33 PM]
+deal
+[6:33 PM]
+i shook
+[6:33 PM]
+1
+[6:33 PM]
+man hand
+[6:33 PM]
+and i cut off his balls if he divorice my pandita
+[6:33 PM]
+[6:33 PM]
+before
+[6:33 PM]
+I PROCEED
+[6:33 PM]
+TIM PUTNAMS
+[6:33 PM]
+write
+[6:33 PM]
+a public apologiy
+[6:33 PM]
+and gives me partisan records
+[6:33 PM]
+or
+[6:33 PM]
+i post
+[6:33 PM]
+IT ALL
+[6:33 PM]
+RESIGN.
+[6:34 PM]
+before
+I PROCEED
+TIM PUTNAMS
+write
+a public apologiy
+and gives me partisan records
+or
+i post
+IT ALL
+RESIGN.
+[6:34 PM]
+[6:34 PM]
+before
+I PROCEED
+TIM PUTNAMS
+write
+a public apologiy
+and gives me partisan records
+or
+i post
+IT ALL
+RESIGN.
+[6:34 PM]
+[6:34 PM]
+before
+I PROCEED
+TIM PUTNAMS
+write
+a public apologiy
+and gives me partisan records
+or
+i post
+IT ALL
+RESIGN.
+
 APOLOGIZE TO THE QWEEN NOW PHOTOS BY CANNODALE
 
 bananoman — Today at 6:30 PM
