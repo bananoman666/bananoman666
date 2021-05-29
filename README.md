@@ -1,4 +1,278 @@
 BENISCOIN: THE GRIMES GENIS BLOKE
+--------
+
+PART CUNT 1
+
+
+bananoman — Today at 6:46 PM
+i kill 1 tim putnam in one year, this is not a drill and not up to me, if tim putnam doesnt apologiez to queen now
+[6:46 PM]
+nbye
+[6:47 PM]
+[6:47 PM]
+Benis Mange — Today at 11:37 AM
+@everyone I CREATED THIS TO SPAM YOU CUNTS
+[11:39 AM]
+Bane? — Today at 11:37 AM
+@everyone I CREATED THIS TO SPAM YOU CUNTS
+@everyonedon't join this server it is private please respect my privacy
+https://discord.gg/ATEeywat
+YOU SENT AN INVITE TO JOIN A SERVER
+private
+general
+
+Joined
+[11:39 AM]
+Bane? — Today at 11:37 AM
+@everyone I CREATED THIS TO SPAM YOU CUNTS
+@everyonedon't join this server it is private please respect my privacy
+https://discord.gg/ATEeywat
+YOU SENT AN INVITE TO JOIN A SERVER
+private
+general
+
+Joined
+[11:39 AM]
+Bane? — Today at 11:37 AM
+@everyone I CREATED THIS TO SPAM YOU CUNTS
+@everyonedon't join this server it is private please respect my privacy
+https://discord.gg/ATEeywat
+YOU SENT AN INVITE TO JOIN A SERVER
+private
+general
+
+Joined
+
+omar fucko — Today at 11:44 AM
+good
+
+KING PRANTO! — Today at 11:56 AM
+Benis world
+
+@Benis Mange
+Bane? — Today at 11:37 AM @everyone I CREATED THIS TO SPAM YOU CUNTS @everyonedon't join this server it is private please respect my privacy https://discord.gg/ATEeywat
+
+Bananoman — Today at 2:01 PM
+Oh Morsi
+
+Benis Mange — Today at 6:07 PM
+APOLOGIZE TO THE QWEEN
+CUNT FUCK FUCKO
+
+Benis Mange — Today at 6:39 PM
+[6:39 PM]
+@everyone
+[6:39 PM]
+[6:44 PM]
+morrisy
+[6:44 PM]
+got it
+[6:45 PM]
+the qween is alive
+[6:45 PM]
+how soon is now?
+YOU SENT AN INVITE TO JOIN A SERVER
+private
+general
+
+Joined
+[6:47 PM]
+bye
+[6:47 PM]
+cutns
+[6:47 PM]
+cunt
+[6:47 PM]
+rip
+[6:47 PM]
+$ticker bitcion
+
+RIP BITCOIN
+BOT
+ — Today at 6:47 PM
+ Command error
+@bananoman, this currency is not listed on CoinGecko.
+
+bananoman — Today at 6:47 PM
+brb
+[6:47 PM]
+i'm mad
+[6:47 PM]
+it dramatic
+[6:48 PM]
+https://discord.gg/gfVrC3zT
+YOU SENT AN INVITE TO JOIN A SERVER
+Beniscoin
+🐒epic-monkey-burn-channel🐒
+
+Joined
+[6:48 PM]
+[6:48 PM]
+https://discord.gg/gfVrC3zT
+YOU SENT AN INVITE TO JOIN A SERVER
+Beniscoin
+🐒epic-monkey-burn-channel🐒
+
+Joined
+[6:48 PM]
+[6:48 PM]
+https://discord.gg/gfVrC3zT
+YOU SENT AN INVITE TO JOIN A SERVER
+Beniscoin
+🐒epic-monkey-burn-channel🐒
+
+Joined
+
+bananoman — Today at 6:55 PM
+https://discord.gg/gfVrC3zT
+YOU SENT AN INVITE TO JOIN A SERVER
+Beniscoin
+🐒epic-monkey-burn-channel🐒
+
+Joined
+[6:55 PM]
+$ticker waxp
+
+RIP BITCOIN
+BOT
+ — Today at 6:55 PM
+
+WAX
+Market cap
+$246,779,866.00 (#173) ​
+Price
+$0.15 ​
+Price (BTC)
+ 408 satoshi ​
+Change (1h)
+ +0.04% ​
+Change (24h)
+ -5.59% ​
+Change (7d)
+ -0.84% ​
+
+Data fetched from CoinGecko.com•Today at 6:53 PM
+
+1
+
+bananoman — Today at 6:55 PM
+[6:56 PM]
+[6:56 PM]
+$ticker banano
+
+RIP BITCOIN
+BOT
+ — Today at 6:56 PM
+
+Banano
+Market cap
+$28,638,728.00 (#588) ​
+Price
+$0.02 ​
+Price (BTC)
+ 64 satoshi ​
+Change (1h)
+ +1.28% ​
+Change (24h)
+ -8.37% ​
+Change (7d)
+ -15.05% ​
+
+Data fetched from CoinGecko.com•Today at 6:44 PM
+
+1
+
+bananoman — Today at 6:56 PM
+66.6 satoshi
+[6:56 PM]
+i stop
+[6:56 PM]
+[6:57 PM]
+[6:57 PM]
+[6:58 PM]
+[6:58 PM]
+$ticker bitcoin
+
+RIP BITCOIN
+BOT
+ — Today at 6:58 PM
+
+Bitcoin
+Market cap
+$680,080,693,797.00 (#1) ​
+Price
+$36,235.00 ​
+Change (1h)
+ -0.12% ​
+Change (24h)
+ -5.14% ​
+Change (7d)
+ -2.96% ​
+
+Data fetched from CoinGecko.com•Today at 6:56 PM
+
+1
+
+bananoman — Today at 6:58 PM
+[6:58 PM]
+@bananoman
+[6:58 PM]
+[6:58 PM]
+[7:05 PM]
+@everyone someone named Sarah Boomgarrden and @barbiegirl and jacob kauffman and 6 people hacked my facebooked accounts
+[7:05 PM]
+i cannot delete them
+[7:05 PM]
+or instagram
+[7:05 PM]
+i tried for 1 month
+[7:05 PM]
+idk
+[7:05 PM]
+who hacked me
+[7:05 PM]
+i'm sorry
+[7:05 PM]
+i'm a cunt
+[7:06 PM]
+this is my sole facebook until i delete the rest
+[7:06 PM]
+or figure it out
+[7:06 PM]
+i have like 9 lawsuits about to h appen
+[7:06 PM]
+https://www.facebook.com/beniscoin/
+Blair Drager
+Blair Drager is on Facebook. Join Facebook to connect with Blair Drager and others you may know. Facebook gives people the power to share and makes the world more open and connected.
+[7:06 PM]
+THIS IS MY ONLY FACEBOOK
+[7:06 PM]
+as I SAID
+[7:06 PM]
+CUNTS
+[7:06 PM]
+my password for 10 year
+[7:06 PM]
+was
+[7:06 PM]
+"Apple10!"
+[7:06 PM]
+hack me
+[7:06 PM]
+PLEASE
+[7:06 PM]
+I AM HUGE BEGGER NOW
+[7:06 PM]
+HACK ME
+[7:07 PM]
+https://www.facebook.com/beniscoin/
+Blair Drager
+Blair Drager is on Facebook. Join Facebook to connect with Blair Drager and others you may know. Facebook gives people the power to share and makes the world more open and connected.
+
+99999999999999999999999999
+
+
+----------------------------------
 
 i'm gay. assholes.
 [6:14 PM]
