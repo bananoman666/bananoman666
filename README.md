@@ -1,3 +1,136 @@
+TIM PUTNAM BOW DOWN TO THE QUEWEEN OR DEATH
+
+CUCK
+[5:55 PM]
+[5:55 PM]
+[5:55 PM]
+published
+[5:55 PM]
+you have
+[5:55 PM]
+1 year
+[5:55 PM]
+or death.
+[5:55 PM]
+not on me
+[5:56 PM]
+https://github.com/bananoman666/bananoman666/blob/main/README.md
+GitHub
+bananoman666/bananoman666
+Config files for my GitHub profile. Contribute to bananoman666/bananoman666 development by creating an account on GitHub.
+
+[5:56 PM]
+BOW TO MY QUEEN
+[5:56 PM]
+OR
+[5:56 PM]
+DEATH
+[5:56 PM]
+not a joke.
+[5:56 PM]
+PERIOD.
+[5:56 PM]
+it's on you
+[5:56 PM]
+GTFO
+[5:56 PM]
+it's on CERIS
+[5:56 PM]
+[5:56 PM]
+RETK
+[5:57 PM]
+you cucks thought i was going on a vacation
+[5:57 PM]
+[5:57 PM]
+$ticker nano
+
+RIP BITCOIN
+BOT
+ — Today at 5:57 PM
+
+Nano
+Market cap
+$932,297,974.00 (#88) ​
+Price
+$7.03 ​
+Price (BTC)
+ 0.1948 mBTC ​
+Change (1h)
+ +0.74% ​
+Change (24h)
+ -12.90% ​
+Change (7d)
+ -5.38% ​
+
+Data fetched from CoinGecko.com•Today at 5:56 PM
+
+1
+
+bananoman — Today at 5:57 PM
+i own it.
+[5:57 PM]
+PERIOD.
+[5:57 PM]
+[5:59 PM]
+NOW
+[5:59 PM]
+TIM PUTNAM
+[5:59 PM]
+APOLOGIZE
+[5:59 PM]
+TO OUR QWEEN
+[5:59 PM]
+OR DIE
+[6:00 PM]
+i'm waiting.
+[6:00 PM]
+RIGHT HERE
+[6:00 PM]
+OR
+[6:00 PM]
+DEADMAN
+[6:00 PM]
+[6:00 PM]
+the choice is yours
+[6:00 PM]
+you have 24 hours.
+[6:00 PM]
+the world is watching
+[6:00 PM]
+[6:00 PM]
+why not!
+[6:01 PM]
+[6:01 PM]
+https://discord.gg/9bFy4nvQ
+YOU SENT AN INVITE TO JOIN A SERVER
+Beniscoin
+🎯benis-worlds-faq-or-fuck-you
+
+Joined
+[6:01 PM]
+$ticker beniscoin
+
+RIP BITCOIN
+BOT
+ — Today at 6:01 PM
+ Command error
+@bananoman, this currency is not listed on CoinGecko.
+
+bananoman — Today at 6:01 PM
+it dramatic af
+[6:01 PM]
+[6:01 PM]
+[6:02 PM]
+[6:02 PM]
+[6:02 PM]
+i kill in 1 click now
+[6:02 PM]
+leave me alone.
+
+----------------------
+
+
+
 TIM PUTNAM MUST LEAVE ALL BANANOMAN DISCORD OR BULLET FROM OMAR, 1 years time DR RADDISH
 
 bananoman — Today at 5:43 PM
