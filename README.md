@@ -1,3 +1,31 @@
+BENISCOIN. If I am dead in 1 year, kill TIM PUTNAM.
+
+bananoman — Today at 8:04 PM
+i swear to god.
+[8:04 PM]
+I SWEAR TO GOD
+[8:04 PM]
+not only will i kill you
+[8:04 PM]
+yes
+[8:05 PM]
+i wil
+[8:05 PM]
+but first
+[8:05 PM]
+i will rip your face off
+[8:05 PM]
+and feed it to  you
+[8:05 PM]
+2
+[8:05 PM]
+i cut your cock off
+[8:05 PM]
+I WILLL EAT IT ON CAM
+[8:05 PM]
+3
+
+
 TIM PUTNAM CALLED ME A FAGGOT AND HATES GAY PEOPLE
 
 RESIGN.
