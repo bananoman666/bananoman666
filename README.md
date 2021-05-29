@@ -1,3 +1,363 @@
+TIM PUTNAM MUST LEAVE ALL BANANOMAN DISCORD OR BULLET FROM OMAR, 1 years time DR RADDISH
+
+bananoman — Today at 5:43 PM
+cocksucker
+[5:43 PM]
+is droid
+[5:43 PM]
+
+Dopamine — Today at 5:43 PM
+Is in your brain
+
+bananoman — Today at 5:43 PM
+bananoman — Today at 5:43 PM
+cocksucker
+is droid
+Dopamine — Today at 5:43 PM
+Is in your brain
+[5:43 PM]
+
+rekt die dirty cunt — Today at 5:43 PM
+@bananoman
+
+Dopamine — Today at 5:44 PM
+Dopamine is in your brain
+
+bananoman — Today at 5:44 PM
+wakt
+w\
+[5:44 PM]
+wait
+[5:44 PM]
+Banoshi 2
+[5:44 PM]
+idk who that is
+[5:44 PM]
+our droids are dapting
+
+👑&--Lord Banus--&👑 — Today at 5:44 PM
+you are raped
+
+bananoman — Today at 5:44 PM
+fuck
+[5:44 PM]
+i am
+[5:44 PM]
+[5:44 PM]
+so
+[5:44 PM]
+they are learning
+[5:44 PM]
+after i programed that leraning ai drunk into NH PRANTO
+[5:44 PM]
+it dramatic
+[5:44 PM]
+omg
+[5:44 PM]
+look
+
+Dopamine — Today at 5:44 PM
+
+bananoman — Today at 5:44 PM
+i ask him for 1 gif
+[5:44 PM]
+it's terrible
+[5:44 PM]
+it's cancer
+[5:45 PM]
+or real boy
+[5:45 PM]
+basied our hivemind
+[5:45 PM]
+idk
+[5:45 PM]
+[5:46 PM]
+are you
+[5:46 PM]
+yes or no
+[5:47 PM]
+idk
+[5:47 PM]
+i think you attached him to my email
+[5:47 PM]
+its epic
+[5:47 PM]
+The Bananoman — Yesterday at 8:40 PM
+@lordbanus
+[8:40 PM]
+[8:40 PM]
+lol
+[8:41 PM]
+@BENISCOIN PRANTO!!!!!!
+[8:41 PM]
+okay
+[8:41 PM]
+us 3 i guess
+[8:41 PM]
+let's talk
+[8:41 PM]
+fuck
+[8:41 PM]
+user 2
+[8:41 PM]
+lord
+[8:41 PM]
+you're now user 3
+[8:41 PM]
+
+[8:41 PM]
+[8:41 PM]
+[8:41 PM]
+
+NH Pranto — Yesterday at 8:41 PM
+Banano man
+
+The Bananoman — Yesterday at 8:41 PM
+omg
+[5:47 PM]
+sorry banus
+[5:47 PM]
+you are banoshi 2
+
+👑&--Lord Banus--&👑 — Today at 5:47 PM
+@bananoman
+[5:48 PM]
+@bananoman
+
+bananoman — Today at 5:48 PM
+no
+
+👑&--Lord Banus--&👑 — Today at 5:48 PM
+@bananoman
+
+bananoman — Today at 5:48 PM
+are you a new droid
+[5:48 PM]
+you tricked me into think was a nother girl i fuck again
+[5:48 PM]
+i was trolling
+[5:48 PM]
+YET AGAIN
+[5:48 PM]
+APRIL FOOLD you
+[5:48 PM]
+$ticker
+
+RIP BITCOIN
+BOT
+ — Today at 5:48 PM
+
+Banano
+Market cap
+$28,290,067.00 (#589) ​
+Price
+$0.02 ​
+Price (BTC)
+ 64 satoshi ​
+Change (1h)
+ +1.30% ​
+Change (24h)
+ -9.94% ​
+Change (7d)
+ -16.13% ​
+
+Data fetched from CoinGecko.com•Today at 5:46 PM
+
+1
+
+👑&--Lord Banus--&👑 — Today at 5:48 PM
+I am not a robot
+
+bananoman — Today at 5:48 PM
+yes you are
+[5:48 PM]
+tell me something only we know
+[5:48 PM]
+please
+[5:48 PM]
+it's impossible otherwise
+[5:48 PM]
+then i shut up
+[5:49 PM]
+that's the deal
+
+rekt — Today at 5:49 PM
+Hello banano
+
+bananoman — Today at 5:49 PM
+go fuck yourself tim putnam
+[5:49 PM]
+[5:49 PM]
+[5:49 PM]
+[5:49 PM]
+[5:49 PM]
+DIE
+[5:49 PM]
+BYE
+[5:49 PM]
+GTFO YOU FUCKING CUNT FUCK 1
+
+👑&--Lord Banus--&👑 — Today at 5:49 PM
+I don't like the way you express yourself and you are a 5-year-old boy
+
+bananoman — Today at 5:50 PM
+so you are a robot
+[5:50 PM]
+okay fuck off and go watch netflix cunt
+[5:50 PM]
+GTFO
+[5:50 PM]
+&--Lord Banus--& — Today at 5:48 PM
+I am not a robot
+
+bananoman — Today at 5:48 PM
+yes you are
+[5:48 PM]
+tell me something only we know
+[5:48 PM]
+please
+[5:48 PM]
+it's impossible otherwise
+[5:48 PM]
+then i shut up
+[5:49 PM]
+that's the deal
+
+rekt — Today at 5:49 PM
+Hello banano
+
+bananoman — Today at 5:49 PM
+go fuck yourself tim putnam
+[5:49 PM]
+[5:49 PM]
+[5:49 PM]
+[5:49 PM]
+[5:49 PM]
+DIE
+[5:49 PM]
+BYE
+[5:49 PM]
+GTFO YOU FUCKING CUNT FUCK 1
+
+&--Lord Banus--& — Today at 5:49 PM
+I don't like the way you express yourself and you are a 5-year-old boy
+
+bananoman — Today at 5:50 PM
+so you are a robot
+[5:50 PM]
+okay fuck off and go watch netflix cunt
+[5:50 PM]
+GTFO
+[5:50 PM]
+you are the bug
+[5:50 PM]
+TIM PUTNAM
+[5:50 PM]
+NOBODY WANTS YOU HERE
+[5:50 PM]
+DIE
+[5:50 PM]
+GTFO
+
+👑&--Lord Banus--&👑 — Today at 5:50 PM
+Hahahahaha
+
+bananoman — Today at 5:50 PM
+everyone at PARTISAN RECORDS
+[5:51 PM]
+IS REKT NOW
+[5:51 PM]
+why
+[5:51 PM]
+hold
+[5:51 PM]
+$ticker
+
+RIP BITCOIN
+BOT
+ — Today at 5:51 PM
+
+Banano
+Market cap
+$28,290,067.00 (#589) ​
+Price
+$0.02 ​
+Price (BTC)
+ 64 satoshi ​
+Change (1h)
+ +1.30% ​
+Change (24h)
+ -9.94% ​
+Change (7d)
+ -16.13% ​
+
+Data fetched from CoinGecko.com•Today at 5:46 PM
+
+1
+
+bananoman — Today at 5:51 PM
+[5:51 PM]
+sidenote
+[5:51 PM]
+$ticker bitcoin
+
+RIP BITCOIN
+BOT
+ — Today at 5:51 PM
+
+Bitcoin
+Market cap
+$673,464,982,801.00 (#1) ​
+Price
+$35,974.00 ​
+Change (1h)
+ +0.66% ​
+Change (24h)
+ -5.66% ​
+Change (7d)
+ -3.66% ​
+
+Data fetched from CoinGecko.com•Today at 5:49 PM
+
+1
+
+bananoman — Today at 5:51 PM
+[5:51 PM]
+syllvenso sucks
+[5:51 PM]
+all your bands suck
+[5:51 PM]
+your manager
+[5:51 PM]
+andy
+[5:51 PM]
+hsuhe
+
+👑&--Lord Banus--&👑 — Today at 5:51 PM
+I only do what you do
+
+bananoman — Today at 5:51 PM
+calls it dad rock
+[5:51 PM]
+GTFO
+[5:51 PM]
+CUNT FUCK
+[5:51 PM]
+I WILL KILL YOU
+[5:51 PM]
+in 1 year
+[5:52 PM]
+if i find you in any of my discords.
+[5:52 PM]
+PERIOD.
+[5:52 PM]
+[5:52 PM]
+[5:52 PM]
+NEW
+
+👑&--Lord Banus--&👑 — Today at 5:52 PM
+
+
 @everyone i am @assbut you got roblock'd
 
 i like it raw (without a condom on my beniscoin)
