@@ -1,3 +1,273 @@
+TIM PUTNAM CALLED ME A FAGGOT AND HATES GAY PEOPLE
+
+RESIGN.
+[6:34 PM]
+https://github.com/bananoman666/bananoman666/blob/main/README.md
+GitHub
+bananoman666/bananoman666
+Config files for my GitHub profile. Contribute to bananoman666/bananoman666 development by creating an account on GitHub.
+
+[6:35 PM]
+$ticker bitcoin
+
+RIP BITCOIN
+BOT
+ — Today at 6:35 PM
+
+Bitcoin
+Market cap
+$681,273,820,053.00 (#1) ​
+Price
+$36,430.00 ​
+Change (1h)
+ +1.23% ​
+Change (24h)
+ -4.59% ​
+Change (7d)
+ -2.44% ​
+
+Data fetched from CoinGecko.com•Today at 6:31 PM
+
+1
+
+bananoman — Today at 6:35 PM
+[6:35 PM]
+https://github.com/bananoman666/bananoman666/blob/main/README.md
+GitHub
+bananoman666/bananoman666
+Config files for my GitHub profile. Contribute to bananoman666/bananoman666 development by creating an account on GitHub.
+
+[6:35 PM]
+[6:35 PM]
+https://github.com/bananoman666/bananoman666/blob/main/README.md
+GitHub
+bananoman666/bananoman666
+Config files for my GitHub profile. Contribute to bananoman666/bananoman666 development by creating an account on GitHub.
+
+[6:35 PM]
+[6:35 PM]
+i can created childs in my blockchain
+[6:35 PM]
+RIP CHILD
+[6:35 PM]
+1
+[6:36 PM]
+$ticker dogecoin
+
+RIP BITCOIN
+BOT
+ — Today at 6:36 PM
+
+Dogecoin
+Market cap
+$41,186,075,076.00 (#7) ​
+Price
+$0.31 ​
+Price (BTC)
+ 875 satoshi ​
+Change (1h)
+ +0.82% ​
+Change (24h)
+ -4.05% ​
+Change (7d)
+ -9.87% ​
+
+Data fetched from CoinGecko.com•Today at 6:31 PM
+
+1
+
+bananoman — Today at 6:36 PM
+RIP CHILD
+[6:36 PM]
+$ticker nanao
+
+RIP BITCOIN
+BOT
+ — Today at 6:36 PM
+ Command error
+@bananoman, this currency is not listed on CoinGecko.
+
+bananoman — Today at 6:36 PM
+$ticker nano
+
+RIP BITCOIN
+BOT
+ — Today at 6:36 PM
+
+Nano
+Market cap
+$956,847,141.00 (#88) ​
+Price
+$7.18 ​
+Price (BTC)
+ 0.1978 mBTC ​
+Change (1h)
+ +2.15% ​
+Change (24h)
+ -10.40% ​
+Change (7d)
+ -3.41% ​
+
+Data fetched from CoinGecko.com•Today at 6:35 PM
+
+1
+
+bananoman — Today at 6:36 PM
+https://laughablegifs.tumblr.com/post/14032780827/forever-alone
+[6:36 PM]
+lol
+[6:36 PM]
+wat
+[6:36 PM]
+way
+[6:37 PM]
+[6:37 PM]
+[6:37 PM]
+[6:37 PM]
+[6:37 PM]
+[6:37 PM]
+[6:37 PM]
+[6:37 PM]
+[6:37 PM]
+[6:37 PM]
+v
+[6:37 PM]
+[6:37 PM]
+[6:37 PM]
+[6:37 PM]
+[6:37 PM]
+[6:38 PM]
+[6:38 PM]
+
+THE CONSENT FOROVER — Today at 6:48 PM
+mighty bananoman a hug
+
+Banoshi 2 — Today at 7:03 PM
+and gives me partisan records
+or
+i post
+IT ALL
+RESIGN.
+before
+I PROCEED
+TIM PUTNAMS
+write
+a public apologiy
+and gives me partisan records
+or
+i post
+IT ALL
+RESIGN.
+before
+I PROCEED
+TIM PUTNAMS
+write
+a public apologiy
+and gives me partisan records
+or
+i post
+IT ALL
+RESIGN.
+before
+I PROCEED
+TIM PUTNAMS
+write
+a public apologiy
+and gives me partisan records
+or
+i post
+IT ALL
+RESIGN.
+https://github.com/bananoman666/bananoman666/blob/main/README.md
+GitHub
+bananoman666/bananoman666
+Config files for my GitHub profile. Contribute to bananoman666/bananoman666 development by creating an account on GitHub.
+
+$ticker bitcoin
+GitHub
+bananoman666/bananoman666
+Config files for my GitHub profile. Contribute to bananoman666/bananoman666 development by creating an account on GitHub.
+
+[7:03 PM]
+666
+[7:03 PM]
+omg dapper
+
+bananoman — Today at 7:12 PM
+[7:12 PM]
+[7:12 PM]
+[7:12 PM]
+@Wonder Woman Pandita🐼
+[7:12 PM]
+did i get 1 apology yet?
+[7:12 PM]
+idk
+[7:12 PM]
+asking for a dead retarded cunt fucko
+[7:12 PM]
+[7:12 PM]
+[7:12 PM]
+[7:12 PM]
+[7:12 PM]
+[7:13 PM]
+TIM PUNTNAM HATES THE GAY COMMUNITY
+[7:13 PM]
+AND I SHUNNED HIM FOR THIS
+[7:13 PM]
+HE TOLD ME IT IN CONFIDENCE AND I TOLD HIM TO SIGN JOHN GRAND AND HE HATES FAGGOTS
+[7:13 PM]
+TIM PUTNAM HATES FAGGOTS IN SECRET
+[7:13 PM]
+AND WILL LIE TO YOU
+[7:13 PM]
+TIM PUNTNAM HATES THE GAY COMMUNITY
+AND I SHUNNED HIM FOR THIS
+HE TOLD ME IT IN CONFIDENCE AND I TOLD HIM TO SIGN JOHN GRAND AND HE HATES FAGGOTS
+TIM PUTNAM HATES FAGGOTS IN SECRET
+AND WILL LIE TO YOU
+[7:13 PM]
+[7:13 PM]
+lol
+[7:13 PM]
+grimes block
+[7:13 PM]
+[7:14 PM]
+TIM PUNTNAM HATES THE GAY COMMUNITY
+AND I SHUNNED HIM FOR THIS
+HE TOLD ME IT IN CONFIDENCE AND I TOLD HIM TO SIGN JOHN GRAND AND HE HATES FAGGOTS
+TIM PUTNAM HATES FAGGOTS IN SECRET
+AND WILL LIE TO YOU
+[7:14 PM]
+@everyone
+[7:14 PM]
+TIM PUNTNAM HATES THE GAY COMMUNITY
+AND I SHUNNED HIM FOR THIS
+HE TOLD ME IT IN CONFIDENCE AND I TOLD HIM TO SIGN JOHN GRAND AND HE HATES FAGGOTS
+TIM PUTNAM HATES FAGGOTS IN SECRET
+AND WILL LIE TO YOU
+[7:14 PM]
+[7:14 PM]
+[7:14 PM]
+TIM PUNTNAM HATES THE GAY COMMUNITY
+AND I SHUNNED HIM FOR THIS
+HE TOLD ME IT IN CONFIDENCE AND I TOLD HIM TO SIGN JOHN GRAND AND HE HATES FAGGOTS
+TIM PUTNAM HATES FAGGOTS IN SECRET
+AND WILL LIE TO YOU
+[7:14 PM]
+[7:14 PM]
+[7:14 PM]
+SYLVENESSO DROPPED HIM FOR THIS RAISEN
+[7:14 PM]
+TIM PUNTNAM HATES THE GAY COMMUNITY
+AND I SHUNNED HIM FOR THIS
+HE TOLD ME IT IN CONFIDENCE AND I TOLD HIM TO SIGN JOHN GRAND AND HE HATES FAGGOTS
+TIM PUTNAM HATES FAGGOTS IN SECRET
+AND WILL LIE TO YOU
+[7:14 PM]
+[7:14 PM]
+[7:14 PM]
+SYLVENESSO DROPPED HIM FOR THIS RAISEN
+
 BENISCOIN: THE GRIMES GENIS BLOKE
 --------
 
