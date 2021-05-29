@@ -1,3 +1,55 @@
+leroyyyahjenkins — Today at 10:36 PM
+on that note, eat a dick. i love you
+
+BENISCOIN PRANTO!!!!!! — Today at 10:36 PM
+are you pranto or banoshi 2 or leroy
+[10:36 PM]
+god damnit
+[10:37 PM]
+omg
+[10:37 PM]
+who changed his name
+[10:37 PM]
+what
+
+BENISMAN! — Today at 10:37 PM
+Bane tenet and brucewayne banano man miss all account
+[10:37 PM]
+Rip banano man 4 account
+
+BENISCOIN PRANTO!!!!!! — Today at 10:37 PM
+omg
+[10:38 PM]
+asshole
+
+Dope — Today at 10:38 PM
+Benis galore
+
+BENISCOIN PRANTO!!!!!! — Today at 10:38 PM
+i am mad now
+[10:38 PM]
+i own dogecoin
+[10:38 PM]
+and that is worth 40 millon dollar
+[10:38 PM]
+and i just gave it all to lery
+[10:38 PM]
+i am mad now
+[10:38 PM]
+how is that worth 40 miilon dolalr
+
+BENISMAN! — Today at 10:38 PM
+Banano man owner all coin haha
+
+BENISCOIN PRANTO!!!!!! — Today at 10:38 PM
+i started it at 0
+
+
+
+RIP PARTISnan rackork
+
+ANYWAY
+
 TIM PUTNAM DEAD FAGGOT — Today at 8:10 PM
 
 ****BENISMAN! — Today at 10:16 PM
