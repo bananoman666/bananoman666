@@ -1,4 +1,242 @@
 TIM PUTNAM DEAD FAGGOT — Today at 8:10 PM
+
+****BENISMAN! — Today at 10:16 PM
+Noooo
+[10:16 PM]
+Leroy
+
+bananoman — Today at 10:16 PM
+it is free
+[10:16 PM]
+omg
+[10:16 PM]
+leroy
+[10:16 PM]
+are you pranto
+
+leroyyyahjenkins — Today at 10:16 PM
+I'm Pranto now. hey lets do trivia
+
+bananoman — Today at 10:16 PM
+wait
+[10:17 PM]
+crickent
+[10:17 PM]
+omg
+[10:17 PM]
+you are
+[10:17 PM]
+fuck
+[10:17 PM]
+this file is worth minecraft
+
+minecraft_2.zip
+61.21 MB
+[10:17 PM]
+why i not upload all minecraft free
+[10:17 PM]
+RIP NOTCH
+[10:17 PM]
+omg
+[10:17 PM]
+i know wehre all the diamonds r
+[10:17 PM]
+i make biggest 1 minecraft world for 3 year
+[10:17 PM]
+i trolled you all
+[10:17 PM]
+wait
+[10:17 PM]
+who is pranto
+[10:17 PM]
+please
+[10:17 PM]
+do tell
+
+leroyyyahjenkins — Today at 10:18 PM
+not I
+[10:18 PM]
+i am a lowly circus performer
+[10:18 PM]
+who hates olive garden
+
+bananoman — Today at 10:18 PM
+
+frozen — Today at 10:18 PM
+
+bananoman — Today at 10:18 PM
+
+
+Dope — Today at 10:20 PM
+
+BENISCOIN PRANTO!!!!!! — Today at 10:21 PM
+@everyone
+[10:21 PM]
+you are all simply too stupid
+[10:21 PM]
+to understand my power
+[10:21 PM]
+gay shit: aka tim putnam calls me a faggot once a day, it's harrasment
+[10:21 PM]
+so
+[10:21 PM]
+i'm about
+[10:22 PM]
+to fork
+[10:22 PM]
+ALL
+[10:22 PM]
+cryptocurrencie
+[10:22 PM]
+since
+
+BENISMAN! — Today at 10:22 PM
+Little dramatic
+
+BENISCOIN PRANTO!!!!!! — Today at 10:22 PM
+my first
+[10:22 PM]
+trasaction
+[10:22 PM]
+of bitcion
+[10:22 PM]
+BENISMAN! — Today at 10:22 PM
+Little dramatic
+[10:22 PM]
+omg
+[10:22 PM]
+leroy?
+[10:22 PM]
+
+[10:22 PM]
+like seriousl
+[10:22 PM]
+i'm walking away
+
+Dope — Today at 10:22 PM
+
+
+BENISCOIN PRANTO!!!!!! — Today at 10:22 PM
+and if that thing times
+
+leroyyyahjenkins — Today at 10:22 PM
+i'm so dizy
+
+BENISCOIN PRANTO!!!!!! — Today at 10:23 PM
+no shit
+[10:23 PM]
+yo own alll dogecoin
+[10:23 PM]
+cunt
+[10:23 PM]
+$ticker dogecoin
+
+RIP BITCOIN
+BOT
+ — Today at 10:23 PM
+
+Dogecoin
+Market cap
+$40,784,338,269.00 (#7) ​
+Price
+$0.31 ​
+Price (BTC)
+ 856 satoshi ​
+Change (1h)
+ +0.56% ​
+Change (24h)
+ -5.01% ​
+Change (7d)
+ -10.08% ​
+
+Data fetched from CoinGecko.com•Today at 10:20 PM
+
+1
+
+BENISCOIN PRANTO!!!!!! — Today at 10:23 PM
+4o million dllar
+[10:23 PM]
+stfu
+[10:24 PM]
+leroy
+[10:24 PM]
+guess
+[10:24 PM]
+my passwrod
+[10:24 PM]
+how i found it all
+[10:24 PM]
+of
+[10:24 PM]
+13 years
+[10:24 PM]
+@leroyyyahjenkins
+[10:24 PM]
+type it
+[10:24 PM]
+lets see if he knows
+[10:24 PM]
+omg
+
+leroyyyahjenkins — Today at 10:24 PM
+HAHAHAHAHAHAHAHA
+
+BENISCOIN PRANTO!!!!!! — Today at 10:24 PM
+[10:24 PM]
+so
+[10:24 PM]
+i was doing
+[10:24 PM]
+a mining
+[10:24 PM]
+of a doge
+[10:24 PM]
+since
+[10:24 PM]
+2011
+[10:24 PM]
+on AWS
+[10:24 PM]
+so yeah
+[10:24 PM]
+u rich i think
+
+leroyyyahjenkins — Today at 10:24 PM
+whoops
+
+BENISCOIN PRANTO!!!!!! — Today at 10:25 PM
+you have 40 million dollar
+
+cunt — Today at 10:25 PM
+Hi
+
+BENISCOIN PRANTO!!!!!! — Today at 10:25 PM
+how you find my password
+
+leroyyyahjenkins — Today at 10:25 PM
+i can haz password
+
+BENISCOIN PRANTO!!!!!! — Today at 10:26 PM
+tell everyone
+[10:26 PM]
+when did i create that password and change it 1 week ago
+[10:26 PM]
+so i own like
+[10:26 PM]
+1 millon dollar
+[10:27 PM]
+to slow
+[10:27 PM]
+it now in blockchain
+NEW
+
+Dope — Today at 10:27 PM
+
+leroyyyahjenkins — Today at 10:27 PM
+i want to say i don't believe it. but i absolutely believe it
+[10:27 PM]
+fucking hilarious****
+****
 you shouldn't talk about yourself like that
 
 Dope — Today at 8:10 PM
