@@ -1,4 +1,17 @@
-APOLOGIZE TO THE QWEEN
+APOLOGIZE TO THE QWEEN NOW PHOTOS BY CANNODALE
+
+bananoman — Today at 6:30 PM
+TIME TO POST A DEAD RETARD THAT IS NOT YET TIM PUTNAm
+https://pitchfork.com/reviews/albums/21714-blood-visions/
+Pitchfork
+Jay Reatard: Blood Visions
+Jay Reatard was the kingpin of Memphis garage rock, and his best and most powerful full-length work—the record that made him a standalone rock star—was his first solo album.
+
+sorry
+retard*
+
+
+
 CUNT FUCK FUCKO
 [6:11 PM]
 RIP PARTISAN RECORDS
