@@ -1,3 +1,173 @@
+Beniscoin JULY 4th, or get fucked. DIE CUNT.
+
+bussy coin on panda
+
+pranto can die
+
+omar load minecraft or i quit
+
+Benis Mange — Today at 4:42 PM
+nevermind
+[4:42 PM]
+the powers at be wont' let me post my moms racist text to me
+[4:42 PM]
+lawsuit shit
+[4:42 PM]
+where am i
+[4:46 PM]
+$top
+[4:46 PM]
+
+L.B☘ — Today at 5:25 PM
+Hi @Pandita
+
+Benis Mange — Today at 5:26 PM
+and i deletee
+[5:26 PM]
+now
+[5:26 PM]
+you are @Pandita
+[5:27 PM]
+[5:27 PM]
+
+Benis Mange — Today at 5:44 PM
+wait
+
+Bananoman — Today at 5:56 PM
+Hello
+[5:57 PM]
+@GOD PROBLEM 6.66 hi friends
+
+Dapper Papers — Today at 6:01 PM
+HI fríends, good night
+[6:02 PM]
+
+Pandita — Today at 6:02 PM
+
+Bananoman — Today at 6:08 PM
+
+Banoshi 2 — Today at 7:03 PM
+Supo
+
+Dapper Papers — Today at 7:14 PM
+
+GOD PROBLEM 6.66 — Today at 8:16 PM
+
+KING PRANTO! — Today at 8:56 PM
+Morning
+[8:56 PM]
+Im back
+
+Dapper Papers — Today at 8:59 PM
+@KING PRANTO! hey MN
+
+KING PRANTO! — Today at 9:00 PM
+Who are you?
+[9:00 PM]
+Papers
+
+Bananoman — Today at 9:19 PM
+Bananoman
+
+Bananoman — Today at 9:41 PM
+Hello
+
+omar fucko — Today at 10:34 PM
+good morning
+
+Bananoman — Today at 11:19 PM
+@Bananoman crazy
+
+Benis Mange — Today at 11:44 PM
+[11:44 PM]
+brb minecraft load shit
+[11:44 PM]
+will anyone
+[11:44 PM]
+send 1 link
+[11:45 PM]
+so i can just fucking load it up
+[11:45 PM]
+i cannot figure it out
+[11:45 PM]
+i'm sorry
+[11:45 PM]
+i really have dyslexiax
+[11:45 PM]
+i'm tyred
+[11:45 PM]
+bye
+[11:45 PM]
+fuck off
+[11:45 PM]
+die
+[11:45 PM]
+i hate you
+[11:45 PM]
+with every
+[11:45 PM]
+single
+[11:45 PM]
+inch of my being @Bananoman Forever
+[11:45 PM]
+@everyone
+[11:45 PM]
+nobody will help me
+[11:45 PM]
+i'm worht
+[11:45 PM]
+too much
+[11:45 PM]
+everyone pussy
+[11:45 PM]
+died
+[11:45 PM]
+cunt fucks
+[11:46 PM]
+putting in blockchain
+
+KING PRANTO! — Today at 11:46 PM
+How i help you banano man?
+
+Benis Mange — Today at 11:46 PM
+you made me all so sad
+[11:46 PM]
+you pathetic fuck
+[11:46 PM]
+you pathetic fuck
+[11:46 PM]
+cunt
+[11:46 PM]
+i am the only one to tip/
+[11:46 PM]
+I WANT YOU TO TILL YOURSLEF FUCKOS
+[11:46 PM]
+going in blockchain
+
+KING PRANTO! — Today at 11:46 PM
+@fuckless fig
+
+Benis Mange — Today at 11:46 PM
+you pathethic
+[11:46 PM]
+pussy fuckloser
+[11:46 PM]
+cunt
+[11:46 PM]
+no
+[11:46 PM]
+you
+[11:46 PM]
+i quit
+[11:46 PM]
+i'm done
+[11:46 PM]
+tonight
+[11:46 PM]
+you cunt
+[11:46 PM]
+bye
+
 @everyone I WILL RAPE TIM PUTNAM IN HIS FACE, IRL, ON CAM
 [10:49 PM]
 IF I EVER SEE HIM AGAIN
