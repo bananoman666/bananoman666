@@ -1,3 +1,17 @@
+@everyone I WILL RAPE TIM PUTNAM IN HIS FACE, IRL, ON CAM
+[10:49 PM]
+IF I EVER SEE HIM AGAIN
+[10:49 PM]
+
+fuck — Today at 10:49 PM
+!gs
+
+BENISCOIN PRANTO!!!!!! — Today at 10:49 PM
+BRB
+[10:49 PM]
+BLOCKCHAIN
+
+69696969696969699
 leroyyyahjenkins — Today at 10:36 PM
 on that note, eat a dick. i love you
 
